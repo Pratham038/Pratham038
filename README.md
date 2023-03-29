@@ -1,6 +1,6 @@
 # Pratham038
 # 💫 About Me:
-I am MERN Developer
+MERN Developer
 
 
 ## 🌐 Socials:
