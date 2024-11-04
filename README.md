@@ -1,5 +1,5 @@
 # 💫 About Me:
-💫 About Me:<br>🔭 As a technologist, I'm constantly driven to learn about and adopt new technologies.<br>🌱 I’m currently working on Moringa App version 2<br>✨ Believing in skills and finding solutions in a better way .<br>💯 Adaptability and Grasping Power . <br>
+💫 About Me:<br>🔭 As a technologist, I'm constantly driven to learn about and adopt new technologies.<br>🌱 Guest Lecturer in Kelkar College<br>✨ Believing in skills and finding solutions in a better way .<br>💯 Adaptability and Grasping Power . <br>
 
 
 ## 🌐 Socials:
